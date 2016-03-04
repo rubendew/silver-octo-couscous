@@ -7,7 +7,9 @@ Not just another local repository, this on is global!
 * *physical activity*
 * life
 
-> coding <cite>John Nash, a beautiful Mind 
+> coding, code, it's all I can see
+> I love it, there is nothing I love
+> more!  <cite>"John Nash, A Beautiful Mind"</cite>
 
 #### That's all folks! 
 
